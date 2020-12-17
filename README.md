@@ -1,4 +1,4 @@
-# uzumcubaba.github.io
+https://uzummcubaba.blogspot.com/
 Üzümcü Baba - Güncel Teknoloji Haberleri
 https://uzummcubaba.blogspot.com/
 https://uzummcubaba.blogspot.com/search/label/Donan%C4%B1m
